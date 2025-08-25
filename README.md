@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-* 💻 A veces escribo código.
+* 💻 A veces escribo código 😎
